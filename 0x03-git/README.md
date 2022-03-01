@@ -1,1 +1,1 @@
-i hope it s updated
+i hope it is updated
